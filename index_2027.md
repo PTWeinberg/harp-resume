@@ -14,7 +14,7 @@ The second prophet of The Church of Jesus Christ of Latter-day Saints.
 
 
 ## Education
-
+hi devin
 `2025-2027`
 __LDS Business College__, Salt Lake City, UT
 
